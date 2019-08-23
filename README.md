@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST - TITLE
+# MOTHNODE_ Quickfix
 
 **Listen now:** x
 
@@ -17,6 +17,40 @@ Description.
 
 ```
 
+let me remind you the blinded
+forever on outside
+defined through knot
+they can't see
+(that) i foresaw the beration
+under false deeds
+to question in vain
+they don't really decide
+what warning they'll heed
+wrong triggers with (astound) no end
+your're scarred yourself but you don't see
+(and that's allright)
+
+coded for lil hits ey
+coded for lil hits
+
+get your dopamine dopamine dopamine
+get your dopamine dopamine dopamine
+quick fix dopafiend quickfix
+
+getyourdopa mine
+getyourdopa mine
+getyourdopa mine
+
+getyourdopa mine
+getyourdopa mine
+getyourdopa mine
+getyourdopa mine
+
+get ya paws on treadmill
+through a mall look left
+selling bodies before souls
+on your right drive-by took toll
+nothing much (is) left
 
 ```
 
