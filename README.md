@@ -49,9 +49,10 @@ selling bodies before souuuls
 on your right drive-by took toooooll
 nothing much (is) left
 
-heads divined from inside
-but the inside is dead
+headings divined from inside
+despite the inside is dead
 crash and burn no test
+thoughts are not a manifest
 
 get your dopamine dopamine dopamine
 get your dopamine dopamine dopamine
