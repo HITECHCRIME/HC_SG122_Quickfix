@@ -21,7 +21,7 @@ let me remind you the blinded
 forever on outside
 defined through knot
 they can't see
-(that) i foresaw the beration
+i foresaw the beration
 under false deeds
 to question in VAIN
 
@@ -31,12 +31,18 @@ wrong triggers with (astound) no end
 your're scarred yourself but you don't see
 (and that's allright)
 
-coded for lil hits ey
+coded for lil hits
 coded for lil hits
 
-get your dopamine get your dopamine
-dopamine dopamine
-get your dopamine dopamine dopamine
+get your dopamine 
+get your 
+dopamine
+dopamine 
+dopamine
+get your 
+dopamine 
+dopamine 
+dopamine
 quick fix dopafiend quickfix
 
 getyourdopa mine
@@ -53,10 +59,13 @@ headings divined from inside
 despite the inside is dead
 crash and burn no test
 thoughts are not a manifest
+of cloudst to invest
 
 get your dopamine dopamine dopamine
 get your dopamine dopamine dopamine
 quick fix dopafiend quickfix
+
+quickfix for that fiend quickfix
 
 getyourdopa mine
 getyourdopa mine
