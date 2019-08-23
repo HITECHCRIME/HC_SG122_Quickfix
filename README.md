@@ -48,8 +48,8 @@ getyourdopa mine
 
 get ya paws on treadmill
 through a mall look left
-selling bodies before souls
-on your right drive-by took toll
+selling bodies before souuuls
+on your right drive-by took toooooll
 nothing much (is) left
 
 ```
