@@ -23,7 +23,8 @@ defined through knot
 they can't see
 (that) i foresaw the beration
 under false deeds
-to question in vain
+to question in VAIN
+
 they don't really decide
 what warning they'll heed
 wrong triggers with (astound) no end
@@ -33,6 +34,25 @@ your're scarred yourself but you don't see
 coded for lil hits ey
 coded for lil hits
 
+get your dopamine get your dopamine
+dopamine dopamine
+get your dopamine dopamine dopamine
+quick fix dopafiend quickfix
+
+getyourdopa mine
+getyourdopa mine
+getyourdopa mine aye
+
+get ya paws on treadmill
+through a mall look left
+selling bodies before souuuls
+on your right drive-by took toooooll
+nothing much (is) left
+
+heads divined from inside
+but the inside is dead
+crash and burn no test
+
 get your dopamine dopamine dopamine
 get your dopamine dopamine dopamine
 quick fix dopafiend quickfix
@@ -40,17 +60,7 @@ quick fix dopafiend quickfix
 getyourdopa mine
 getyourdopa mine
 getyourdopa mine
-
 getyourdopa mine
-getyourdopa mine
-getyourdopa mine
-getyourdopa mine
-
-get ya paws on treadmill
-through a mall look left
-selling bodies before souuuls
-on your right drive-by took toooooll
-nothing much (is) left
 
 ```
 
