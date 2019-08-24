@@ -31,6 +31,7 @@ what warning they'll heed
 wrong triggers with no end  (astound)
 you've scarred yourself and (but) don't see
 (and that's allright)
+(cut yourSELF with the seed)
 
 coded for lil hits
 coded for lil hits
