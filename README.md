@@ -29,7 +29,7 @@ they don't really decide
 what warning they'll heed
 
 wrong triggers with no end  (astound)
-your're scarred yourself and (but) don't see
+you've scarred yourself and (but) don't see
 (and that's allright)
 
 coded for lil hits
