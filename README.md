@@ -37,16 +37,13 @@ coded for lil hits
 
 get your dopamine 
 get your dopamine 
-dopamine 
-dopamine
-get your 
-dopamine 
-dopamine 
-dopamine
+get your dopamine aye
+
+get your dopamine dopamine dopamine
 quick fix dopafiend quickfix
 
 getyourdopa mine
-getyourdopa mine
+get to dopamine
 getyourdopa mine aye
 
 get ya paws on treadmill
