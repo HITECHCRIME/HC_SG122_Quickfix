@@ -45,6 +45,7 @@ quick fix dopafiend quickfix
 get your dopamine
 get to dopamine
 get your dopamine aye
+(this is hitech crime)
 
 get ya paws on treadmill
 through a mall look left
