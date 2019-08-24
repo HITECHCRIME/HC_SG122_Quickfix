@@ -23,20 +23,20 @@ defined through knot
 they can't see
 i foresaw the beration
 under false deeds
-to question in VAIN
 
+to question in vain
 they don't really decide
 what warning they'll heed
-wrong triggers with (astound) no end
-your're scarred yourself but you don't see
+
+wrong triggers with no end  (astound)
+your're scarred yourself and don't see
 (and that's allright)
 
 coded for lil hits
 coded for lil hits
 
 get your dopamine 
-get your 
-dopamine
+get your dopamine 
 dopamine 
 dopamine
 get your 
