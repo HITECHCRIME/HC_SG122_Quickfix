@@ -17,7 +17,6 @@ https://www.youtube.com/watch?v=Jgw5adjNcVk
 ## Lyrics
 
 ```
-
 let me remind you the blinded
 forever on outside
 defined through knot
@@ -49,14 +48,14 @@ get your dopamine aye
 
 get ya paws on treadmill
 through a mall look left
-selling bodies before souuuls
-on your right drive-by took toooooll
+selling bodies before souls
+on your right drive-by took toll
 nothing much is left
 
 headings divined from inside
 despite the inside is dead
 crash and burn no test
-thoughts are not a manifest
+thoughts are not a manifest (are not manifests)
 of cloudst to invest
 
 get your dopamine dopamine dopamine
