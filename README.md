@@ -42,15 +42,15 @@ get your dopamine aye
 get your dopamine dopamine dopamine
 quick fix dopafiend quickfix
 
-getyourdopa mine
+get your dopamine
 get to dopamine
-getyourdopa mine aye
+get your dopamine aye
 
 get ya paws on treadmill
 through a mall look left
 selling bodies before souuuls
 on your right drive-by took toooooll
-nothing much (is) left
+nothing much is left
 
 headings divined from inside
 despite the inside is dead
