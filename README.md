@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Quickfix
+# MOTHNODE_ Quickfix [Directive Protocol Γ]
 
 **Listen now:** x
 
@@ -10,9 +10,9 @@ Description.
 FREE_UICIDEBOY_TYPE_BEAT_FULL_OF_DARKNE_prod._HERTHA_x_NORK-youtube-Jgw5adjNcVk-251
 https://www.youtube.com/watch?v=Jgw5adjNcVk
 
-**Title:**  / **Featuring:** 
+**Title:** Quickfix [Directive Protocol Γ] / **Featuring:** 
 
-**Production:**  / **Lyrics:** 
+**Production:** mothnode x hertha x nork / **Lyrics:** mothnode
 
 ## Lyrics
 
