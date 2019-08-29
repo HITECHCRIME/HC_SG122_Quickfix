@@ -1,4 +1,4 @@
-![](52D559AB-53AF-4A99-8F44-E814DF5758D0_upscaled_image_x4.png.jpg)
+![](52D559AB-53AF-4A99-8F44-E814DF5758D0.PNG)
 
 # MOTHNODE_ Quickfix [Directive Protocol Γ]
 
