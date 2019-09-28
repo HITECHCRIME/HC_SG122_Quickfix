@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Quickfix [Directive Protocol Γ]
 
-**Listen now:** x
+**Listen now:** 
 
 ## Project Data
 
